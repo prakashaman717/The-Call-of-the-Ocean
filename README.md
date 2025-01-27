@@ -1,5 +1,5 @@
 
-# The Call of the Ocean #
+# The Call of the Ocean
 ### I am the ocean, beautifully vast and wide,
 ### A cradle of life, nature walk &  Earth’s beating tide.
 ### From depths unseen and unmeasured to sunshine shore,
@@ -56,6 +56,6 @@ Human, the self centered species listen, I am a part of mother nature that has t
 
 
 ## I am calling you “O” the ocean child,
-## You are the hope and always be sustainable & wild.
+## You are the hope and always be sustainable & wild. ![The Ocean Child](https://github.com/prakashaman717/The-Call-of-the-Ocean/blob/main/20250124_132928.jpg)
 
 Hey you, Yes Yes you, the one who is reading, you know what you are the ocean child. Your life revloves arond me.You are you and I am I because of each other. Hand in Hand, Promises to keep, miles to go before we sleep. Since, you are the future generation, you have the chance to decrease and if possible revert these things I told you. I suggests you be sustainable and wild like you used to live in and with the nature. This is my message to you my boy/girl, you can save me or hurt me,if you save me I will save you, if you will hurt me, I will hurt you. Understood, Oh OCEAN CHILD!
